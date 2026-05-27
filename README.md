@@ -1,1 +1,1 @@
-# Sec
+Receba conhecimento
